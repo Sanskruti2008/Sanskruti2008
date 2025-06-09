@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-🙋‍♀️ Hey there! I'm Sanskruti.
+🙋‍♀️  I'm Sanskruti.
 
 Welcome to my GitHub space!
 
